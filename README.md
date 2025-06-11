@@ -1,0 +1,2 @@
+# F4tkhulscript
+Graduated
